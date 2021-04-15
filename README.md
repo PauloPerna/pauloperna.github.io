@@ -1,4 +1,1 @@
 # Repositório Público PAULO PERNA
-
-
-### 
